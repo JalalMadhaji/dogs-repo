@@ -7,4 +7,4 @@
 6. Inu Shiba
 7. Wolfie
 8. Shirazi
-9. Pugs
+9. Golden Retriever
